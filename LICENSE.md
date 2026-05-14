@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with new nft mint bot | NFT-sniping + whitelist-bypass. Featuring NFT-sniping and whitelist-bypass, it's the best choice for automated NFT trading.
 
 
 
